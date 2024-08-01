@@ -31,4 +31,4 @@ Remember: 6G is not just about faster internet speeds; it represents a transform
 
 Email: mmk23132000@gmail.com
 
-Telegram ID: @MadMadix
+Telegram ID: @MadMadism
