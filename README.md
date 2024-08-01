@@ -30,4 +30,5 @@ To keep up-to-date with the latest developments in 6G technology, follow industr
 Remember: 6G is not just about faster internet speeds; it represents a transformative leap in connectivity that will reshape our world.
 
 Email: mmk23132000@gmail.com
+
 Telegram ID: @MadMadix
